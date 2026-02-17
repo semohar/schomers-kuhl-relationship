@@ -21,7 +21,7 @@
 ![Image](Attachments/B597E0F4-D612-4AFC-9F5B-2E1EE169F76F.jpeg)  
 - Adam and Anton Zimmerman were brothers  
 ![Relationship](Attachments/DAA6DCAF-EC84-4B2F-8DE8-DDAA12F0BBF5.jpeg)  
-- Adam Zimmerman married Mary Anna Zimmerman  
+- Adam Schmitz married Mary Anna Zimmerman  
 ![Adam Schmitz](Attachments/F63A1D4E-D208-4C9A-8679-5A33D70E581D.jpeg)  
 ###   
 ### Lincoln Township Map (1899)  

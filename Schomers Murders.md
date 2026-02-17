@@ -60,3 +60,7 @@
 ![Mann Anna chauttonn](Attachments/11BA8726-8F0A-4121-B688-2FBBC81011DB.jpeg)  
 - Peter Schmitz (no relation found - family is from Luxembourg, not Germany)  
 ![Peter Schmitz](Attachments/746B6AFB-86B8-4ECF-9F95-27CEADADB57F.heic)  
+
+(BONUS)
+- Ella Mae Schomers (Francis' sister) married a Schmitz
+![image](Attachments/ellamae.jpg)

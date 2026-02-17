@@ -3,8 +3,8 @@
 ### Brief Life of Francis Schomers   
 [(link)](https://ancestors.familysearch.org/en/G9YJ-C8J/francis-charles-schomers-1920-1963)  
 - father: Matthias (or Matthew) Schomers  
-![Francis Charles Scho...](Attachments/EB37F858-AD96-4162-9FC9-AADF9AE1A7A2.jpeg)  
-  
+![Francis Charles Scho...](Attachments/EB37F858-AD96-4162-9FC9-AADF9AE1A7A2.jpeg)
+![Image](Attachments/IMG_9470.PNG)
   
 ## 1899 - Zimmerman, Schmitz properties near Schomers   
   
@@ -63,4 +63,4 @@
 
 (BONUS)
 - Ella Mae Schomers (Francis' sister) married a Schmitz
-![image](Attachments/ellamae.jpg)
+![Image](Attachments/IMG_9470.PNG)
